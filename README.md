@@ -1,1 +1,1 @@
-# weekly-plan
+# periodic table
